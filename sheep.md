@@ -1,2 +1,3 @@
 ## sheep song
- one sheep 🐑 two sheep🐑🐑
+나는 양
+ one sheep 🐑 two sheep🐑🐑 three 🐑🐑🐑
